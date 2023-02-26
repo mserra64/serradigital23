@@ -1,2 +1,2 @@
 # serradigital23
-impulsa tu calidad devida
+impulsa tu calidad de vida
